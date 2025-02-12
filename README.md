@@ -3,4 +3,3 @@ Entrega de wireframes ecommerce personal
 Geremy Lema
 https://miro.com/welcomeonboard/emovTWRKamtZeHRmSDh3UCtIejJ5b2UxQ0oweWlnN1MzTUgxWE5BSkwxVkhtVVRsUWNnbTNIc0xkSjE5cHVqdGwrK3NSNUQ3cnFnK1I5NndrVGpBNGZ5b1IzZ3JZN2ZST1ZwdUF0VmNzTm1lbDV0dVhRekM2NVU4RjVqZkZ0ZUtNakdSWkpBejJWRjJhRnhhb1UwcS9BPT0hdjE=?share_link_id=293243738480
 11/2/2025
-Profe en la visualisacion sale 9 hojas pero en el miro estan las 10 hojas
